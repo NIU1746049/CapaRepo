@@ -1,3 +1,2 @@
 # CapaRepo
-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
-actualitzat el 24/10
+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
